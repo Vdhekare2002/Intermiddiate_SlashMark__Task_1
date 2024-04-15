@@ -1,1 +1,1 @@
-# Intermiddiate_SlashMark__Task_1
+# Intermidiate_SlashMark__Task_1
